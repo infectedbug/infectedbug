@@ -12,7 +12,7 @@
     
 </div>
 
-<div align="center"> Vinn, Vinny || 16 || current interest..; deltarune / deernull
+<div align="center"> Vinn, Vinny ( will also go by vincent as people think thats my actual name ❤️ ) || 16 || current interest ( s ) .. ; hazbin hotel , deltarune , regretavator 
 
 <div align="center">
   <img src="https://64.media.tumblr.com/392d0b0528ba86248c004278b4b9fd41/f62b77454022362b-97/s1280x1920/1d967d662d37a826bc935ab6730a93f40672cdec.pnj">
