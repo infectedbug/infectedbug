@@ -3,7 +3,7 @@
 </div>
 <div align="center">
 
-![](https://i.pinimg.com/736x/fa/8f/af/fa8fafc3c754876da18aa87a818aad29.jpg)
+![](https://i.pinimg.com/736x/d6/95/fe/d695fe0502e113c345a468ec87397f5f.jpg)
 
 
 
@@ -24,7 +24,7 @@
 
 <div align="center">
 
-![](https://i.pinimg.com/736x/be/08/eb/be08eb6409e309cc8c68ba727c602e00.jpg)
+![](https://i.pinimg.com/736x/86/d1/ef/86d1ef61cbf2a4cc58f9b30141961da7.jpg)
 
 <div align="center">
   <img src="https://64.media.tumblr.com/23516a077b19953675e625188a0ea73f/fc64dfe582ead904-70/s2048x3072/f5198a218e8e32a3f6b85d2ce90d14f381b21615.pnj">
